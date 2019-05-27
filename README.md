@@ -1,2 +1,2 @@
 # xDream
-xDream | Copyrighted Prawira Genestonlia | All rights reserved.
+xDream | Copyright© Prawira Genestonlia | All rights reserved.
